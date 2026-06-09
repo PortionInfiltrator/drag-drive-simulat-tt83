@@ -1,4 +1,4 @@
-
+premium Script for drag drive simulator is the best drag drive simulator Script, featuring auto-sell and one-hit kill. Safe and powerful for all your
 
 
 
